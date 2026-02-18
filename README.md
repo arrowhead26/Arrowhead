@@ -1,0 +1,1 @@
+These documents detail the proposed phased restoration of the Arrowhead Ranch. When the abandoned Ranch is a productive property again, it will be an asset to our community and our economy. We welcome suggestions and collaborations on how to serve our community better.    
